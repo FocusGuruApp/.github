@@ -1,4 +1,7 @@
-## A New Era of Your Focus
+# Focus Guru
 
-**Focus Guru** empowers you to focus on what truly matters.
-Stay motivated, and transform your daily routines into lasting success.
+Where focus meets results.<br/>
+**Focus Guru** is a productivity tool for neurodivergent minds.
+
+🚀 Start achieving at [focusguru.app](https://focusguru.app)
+👨‍💻 Visit the support hub at [focusguru.app](https://focusguru.app)
